@@ -25,7 +25,7 @@ His words eroded my confidence. They stung so deeply because I knew they were tr
 
 “Aye,” I stammered.
 
-*Two more fights and I am heir to the throne. Then I will be free from my past and from men like this fool and Him...*
+*Two more fights and I am heir to the throne. Then I will be free from my past and Gemma and from men like this fool and Him...*
 
 My quivering body tensed as I unsheathed my dagger. The blast of sound that emanated from the arena’s walls initiated the duel. The continuous screeching which the crowd used to visualize their surroundings with their ears, intensified my perpetual headache.
 

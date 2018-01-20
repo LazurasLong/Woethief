@@ -113,7 +113,7 @@ He spoke truthfully; I knew because I could peer into his soul. But I feared tha
 
 *I know this may seem petty,* I started. *But may I feel your face? I wish to know what you are like.*
 
-“Of course.”
+*“Of course.”*
 
 I placed my hands on his face being careful not to harm him with my hand-dagger. My bandaged fingertips brushed across ears which streaked from above his head all the way across his face to his wet nose. Fangs protruded slightly from his mouth. Overall, he was very becoming to others of his race; to me he was terror incarnate. Bats and spiders comprised the material which formed the agony of my nightmares.
 

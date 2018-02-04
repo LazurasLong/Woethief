@@ -22,6 +22,7 @@ Many people say they would take the pain of a loved one if they had the chance. 
 
 [008 Faithful’s Bride](https://nylawoethief.github.io/Woethief/008FaithfulsBride)
 
+[009 Preparations for the Duel](https://nylawoethief.github.io/Woethief/009PreparationsForTheDuel)
 
 [Follow @NylaWoethief on diaspora](https://diasp.org/people/b7e6f760c80701357519047d7b62795e) | [Follow @NylaWoethief on Mastadon](https://writing.exchange/web/accounts/16013) | [Find on Write.as](https://nyla-woethief.writeas.com/)
 

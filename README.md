@@ -26,6 +26,8 @@ Many people say they would take the pain of a loved one if they had the chance. 
 
 [010 Guards Insult Nyla](https://nylawoethief.github.io/Woethief/010GuardsInsultNyla)
 
+[011 Breakfast with Royalty](https://nylawoethief.github.io/Woethief/011BreakfastWithRoyalty)
+
 [Follow @NylaWoethief on diaspora](https://diasp.org/people/b7e6f760c80701357519047d7b62795e) | [Follow @NylaWoethief on Mastadon](https://writing.exchange/web/accounts/16013) | [Find on Write.as](https://nyla-woethief.writeas.com/)
 
 <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/"><img alt="Creative Commons License" style="border-width:0" src="https://i.creativecommons.org/l/by-sa/4.0/88x31.png" /></a><br />Unless otherwise stated, all content is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a>. Please credit Nyla Woethief as the author and A.G. Neff as the illustrator when you share.

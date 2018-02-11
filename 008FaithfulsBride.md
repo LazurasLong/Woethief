@@ -46,6 +46,10 @@ A glorious smile encircled her fangs which dripped the most delectable nectar an
 
 Many impossibly thin spider legs of varying lengths protruded from her waist, forming a skirt and stabilizing her against the walls of the apartment's entrance. Her wings undulated gently as if a breeze blew across them. The tips terminated in fingers each a quarter throse long, with pure silver claws at the ends. Her unblemished fur, which flowed gently from her neck to her clawed feet, could not be improved. Another spinneret rested at her navel. Her hips marked the termination of her wings and led to powerful legs and clawed hand-feet.
 
+
+![Silver Nectarfang by A.G. Neff (CC BY-SA 4.0)](/SilverNectarfang.jpg)
+`Illustration CC BY-SA 4.0 by A.G. Neff`
+
 **"What is your name?"** Faithful resumed the conversation.
 
 **"Whatever you wish it to be."** Here he stalled again.

@@ -16,7 +16,7 @@ His claws squeezed more tightly. I could not reach my weapon without arousing su
 
 **“As you wish,”** He removed his hand and immediately returned it to my arm.
 
-Faithful leveled a pistol at Centin’s chest. Centin released me. I clambered away from the table with a torn sleeve my shoulder-blade clearly audible.
+Faithful leveled a pistol at Centin’s chest. Faithful and I could not be charged with any crime until after the completion of the duel. Centin released me. I clambered away from the table with a torn sleeve my shoulder-blade clearly audible.
 
 A slave led me to the combat platform where the King proclaimed the rules of engagement to the thousands of spectators. My skin felt as if it were pricked with a million fiery needles all at once.
 
